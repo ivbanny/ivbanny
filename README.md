@@ -1,12 +1,16 @@
-<img width="440" height="360" alt="image" src="https://github.com/user-attachments/assets/f053435d-bd3c-4dcb-9bd6-6bdc1093806f" />
+<img width="600" height="200" alt="Image" src="https://github.com/user-attachments/assets/2b1ee6dc-265a-4a11-ad99-772e4a82520c" />
+
+* *
+⠀⠀⠀⠀⠀⠀[info](<https://en.pronouns.page/@ivbanny>) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 * *
 
-<img width="440" height="660" alt="image" src="https://github.com/user-attachments/assets/029b5ace-4d4b-4c0c-8ca5-25055fe644a8" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*Oh girl, it's you that i lie with* 
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*As the atom bomb locks in*
 
 * *
-⠀⠀⠀⠀⠀⠀⠀[prns page](<https://en.pronouns.page/@ivbanny>) !
 
-⠀⠀⠀⠀⠀[harvey](<https://github.com/MlZlSUA>)⠀⠀[spade](<https://github.com/parasiticrose>)⠀♡
+⠀⠀⠀⠀⠀[trou](<https://github.com/MlZlSUA>) [plets](<https://github.com/parasiticrose>)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀ laurie
+⠀⠀⠀⠀⠀⠀⠀⠀⠀
