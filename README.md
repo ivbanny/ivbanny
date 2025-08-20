@@ -2,7 +2,7 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀[info](<https://en.pronouns.page/@ivbanny>) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀ [info](<https://en.pronouns.page/@ivbanny>) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀
 
