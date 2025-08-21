@@ -12,6 +12,6 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀[trou](<https://github.com/O82O>) [plets](<https://github.com/parasiticrose>)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀[trip](<https://github.com/O82O>) [lets](<https://github.com/parasiticrose>)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
