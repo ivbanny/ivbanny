@@ -12,6 +12,8 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀[trip](<https://github.com/O82O>) [lets](<https://github.com/parasiticrose>)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀[trip](<https://github.com/O82O>) [lets](<https://github.com/parasiticrose>)
+
+⠀⠀⠀⠀⠀⠀[vax](<https://github.com/yaoirot>)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
