@@ -2,7 +2,7 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀ [me](<https://en.pronouns.page/@ivbanny>) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀ [strawpage](<https://yurifui.straw.page>) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀
 
