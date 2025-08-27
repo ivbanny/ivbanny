@@ -6,14 +6,6 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*keep you close and one* 
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*day we'll get married*
-
-⠀
-
-⠀⠀⠀⠀⠀[trip](<https://github.com/O82O>) [lets](<https://github.com/parasiticrose>)
-
-⠀⠀⠀⠀⠀⠀[vax](<https://github.com/yaoirot>)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[th](<https://github.com/KISSINGSTRANGERS>) [e](<https://github.com/parasiticrose>) [m](<https://github.com/yaoirot>)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
