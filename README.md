@@ -2,13 +2,13 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀ [strawpage](<https://yurifui.straw.page>) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀ [strwpge](<https://yurifui.straw.page>) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[th](<https://github.com/KISSINGSTRANGERS>)  [e](<https://github.com/parasiticrose>)  [m](<https://github.com/yaoirot>)⠀⠀[nephew](<https://github.com/T3NF4cedEls0dary>)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀me and my husband ♡⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![wlw](<https://visitor-badge.laobi.icu/badge?page_id=yurifuI>)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀જ⁀➴⠀⠀ ![wlw](<https://visitor-badge.laobi.icu/badge?page_id=yurifuI>)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
