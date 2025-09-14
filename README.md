@@ -2,7 +2,7 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀ [strwpge](<https://yurifui.straw.page>) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀ [rentry](<https://rentry.co/doomedyuried) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀
 
