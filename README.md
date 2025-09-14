@@ -2,7 +2,7 @@
 
 ⠀
 
-⠀⠀⠀⠀⠀⠀ [rentry](<https://rentry.co/doomedyuried) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀ [rentry](<https://rentry.co/doomedyuried>) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀
 
